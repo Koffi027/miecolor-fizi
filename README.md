@@ -1,0 +1,2 @@
+# miecolor-fizi
+A young talented singer songwriter and entertainer musician who is passionate about the best way of making his life more comfortable and accountability for the better part of his career and his work in the world. Still single ,no girlfriend  , want to prove to the world of his invisible potential. He needs a sponsor or helps based on the idea or agreement deal private WhatsApp number, +2349027454232
